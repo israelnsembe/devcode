@@ -8,3 +8,8 @@
 <h1> Win Win baby!!!</h1>
 <h1> Mukalenga wakubenishaa!!!</h1>
 <h1> NAYEBI NZAMBE AKO SALA!!!AMINA!!!</h1>
+<h1> ELOKO EZALI TE!!!!</h1>
+
+<h1> TOKO BANGA ELOKO TE!! NZAMBE MONENE!!!</h1>
+
+
